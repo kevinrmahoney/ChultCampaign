@@ -2,9 +2,6 @@
 >> testing
 >>> testing
 
-* testing
-** testing
-
 # testing
 # testing2
 ## testing3
