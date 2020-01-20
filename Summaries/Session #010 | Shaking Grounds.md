@@ -9,3 +9,10 @@ The party wakes the sound of stomping and roaring, as two Tyrannosaurus Rex come
 
 ## A Lair of Drakes
 Instead, the party finds a tunnel that leads upward. They follow the tunnel into a large cavern, which seems to have a sleeping drake. After disturbing its sleep, it starts charging at them - along with four other drakes, each a different color. Combat ensues, and the party emerges victorious, though it proved to be the most difficult encounter yet. The cavern itself seems to be enchanted with several types of magic - a false cave entrance and a magical fire spewing trap. Past the trap was a door with no handle - only a keyhole - as well as a chest containing a magical stone, some potions and coin. They take a long rest within the cave to continue their adventures the next day.
+
+
+
+
+
+----------------------------
+Session played on 01/02/2019
