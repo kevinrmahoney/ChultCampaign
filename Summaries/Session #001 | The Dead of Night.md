@@ -1,7 +1,5 @@
 # The Dead of Night
 
-Session played on 10/12/2019
-
 *by Volothamp Geddarm*
 
 *15th of September, the Year 2054*
@@ -16,3 +14,7 @@ After traversing the woods for a half hour, they come upon the goblin menace, an
 Before sleeping, the party listens in on the rumors going around: one rumor being of a curse on the island of Chult to the west of Wavecrest. Tycerian also meets Volothamp "Volo" Geddarm, an author who tasks him with finding and describing monsters he may encounter in his adventures for a future book he's writing.
 
 In the dead of night, a man on horseback rides past the inn with a torch, yelling for help at the docks.
+
+
+----------------------------
+Session played on 10/12/2019
