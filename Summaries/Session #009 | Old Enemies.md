@@ -9,3 +9,10 @@ The party presses on after their encounter with the goblins to the Aldani Basin.
 
 ## A Lone Survivor
 The place is looted, where they find some new magical items, and the prison is freed. He introduces himself as Jerdenal, a cartographer, who works with the Order of the Forge. His group was looking for mining spots to the south when they were attacked by fire newts, and then undead. He believes he is the only survivor. He was captured by the Blackguard group and forced to reveal his knowledge to them. He thanks them for their help in saving him. The party then decides to take a long rest, and focus their effort on climbing Mbala afterwards, with Jerdenal agreeing to come with them before a trip back to Camp Vengeance.
+
+
+
+
+
+----------------------------
+Session played on 12/15/2019
