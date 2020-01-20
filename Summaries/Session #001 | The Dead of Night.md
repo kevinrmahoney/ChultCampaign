@@ -1,5 +1,7 @@
 # The Dead of Night
 
+Session played on 10/12/2019
+
 *by Volothamp Geddarm*
 
 *15th of September, the Year 2054*
