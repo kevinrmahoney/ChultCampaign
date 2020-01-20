@@ -3,9 +3,7 @@
 ## Chapter 1: The Death Curse
 
 [Session #001 | The Dead of the Night](https://github.com/RigelOrionBeta/ChultCampaign/blob/master/Summaries/Session%20%23001%20%7C%20The%20Dead%20of%20Night.md)
-
 [Session #002 | The End of a Legacy.md](https://github.com/RigelOrionBeta/ChultCampaign/blob/master/Summaries/Session%20%23002%20%7C%20The%20End%20of%20a%20Legacy.md)
-
 [Session #003 | Spiritual Numbness.md](https://github.com/RigelOrionBeta/ChultCampaign/blob/master/Summaries/Session%20%23003%20%7C%20Spiritual%20Numbness.md)
 [Session #004 | The Cursed Guide.md](https://github.com/RigelOrionBeta/ChultCampaign/blob/master/Summaries/Session%20%23004%20%7C%20The%20Cursed%20Guide.md)
 [Session #005 | Welcome to the Jungle.md](https://github.com/RigelOrionBeta/ChultCampaign/blob/master/Summaries/Session%20%23005%20%7C%20Welcome%20to%20the%20Jungle.md)
