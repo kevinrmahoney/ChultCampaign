@@ -1,6 +1,7 @@
 # Stone Cold Gaze
 
 *by Flint Ironforge*
+
 *30th of October, the Year 2054*
 
 ## Wandering
