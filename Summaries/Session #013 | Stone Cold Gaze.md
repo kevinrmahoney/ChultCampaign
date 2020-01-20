@@ -77,3 +77,12 @@ The area is well lit by braziers and in the light, we can see serpent people and
 The party, still in their ethereal form, witnesses the group of human and snake-people all start chanting in a language we don’t understand. The body is raised to the sky in the clutches of one of the humans as the human begins to turn into a snake, becoming larger and larger. Once his transformation is complete, he swallows the body whole. The hooded figure is pleased with the display.
 
 The hooded figure then mentions the intruders, as particpants of the ritual turn to their attention.
+
+
+
+
+
+
+
+----------------------------
+Session played on 01/18/2020
