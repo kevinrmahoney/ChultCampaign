@@ -5,7 +5,7 @@ A section of the Order of the Forge who defend their miners and protect the prie
 Mountain to the south of the basin housing a tribe of Aaracockra
 
 ## Order of the Forge
-A guild of craftsman, miners and smelters.
+A guild of smiths, miners and smelters.
 
 ## The Blackguard
 A group of treasure hunters who also work as mercenaries.
