@@ -16,3 +16,11 @@ The party manages to kill the terror folk, but not with ease - Grimwald nearly d
 ## Wanted
 After hiking down the road leading up to Mbala, they are met by a singing tiger-man, who approaches them asking for Aramil Moonwhisper. He gives him a coin, depicting a horned dinosaur on one face, and explains that the Ytepka Society has sent him. Contacting this person telepathically, Aramil gains an understanding that he is wanted by a merchant prince and ordered to return to port. If he refuses to comply, he will be brought to port by other means. The tiger-man seems to be nervous and doesn't part with this information without hesitation, then parts with the group.
 
+
+
+
+
+
+
+----------------------------
+Session played on 01/04/2020
