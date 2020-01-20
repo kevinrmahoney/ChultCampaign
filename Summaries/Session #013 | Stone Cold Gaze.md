@@ -1,7 +1,7 @@
 # Stone Cold Gaze
 
-*by Flint Ironforge
-30th of October, Year 2054*
+*by Flint Ironforge*
+*30th of October, the Year 2054*
 
 ## Wandering
 Party is looking for their way as they come across a rope hanging from the sky, the end wrapping a bag. Aramil shoots an arrow and breaks the rope, however the bag doesn't fall, suspended in the air fifteen above them. After a couple attempts, they manage to bring the bag down with its contents - potions and an Immovable Rod.
