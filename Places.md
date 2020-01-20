@@ -1,4 +1,4 @@
-# Chult
+Chult
 An island to the west of Wavecrest, rumored to be cursed and holds many strange events.
 
 ## Aldani Basin
