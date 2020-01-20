@@ -2,7 +2,7 @@ Chult
 =====
 An island to the west of Wavecrest, rumored to be cursed and holds many strange events.
 
-## Aldani Basin
+## **Aldani Basin**
 A water basin in Chult said to be where the Heart of Ubtao is located.
 
 ## Camp Vengeance
