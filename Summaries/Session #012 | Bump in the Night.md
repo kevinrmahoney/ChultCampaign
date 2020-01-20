@@ -26,3 +26,12 @@ After this discussion, they get going on their journey to Nangalore, to retrieve
 At the gates of the maze stands the figure of William Stefford, baron of Wavecrest, in a similar ethereal form. He greets them to this place called Erdegal and asks if they'd be willing to go through the gates and complete the maze. He warns them of the dangers inside but notes that their bodies will suffer no permanent harm. The figure says he is a spirit, and Erdegal houses the thoughts and memories of those who previously traversed it, and they will encounter some of those in a similar spiritual form. Specifically, he warns of one you can trust, and one you cannot, one destined to rule, and one destined to destroy. He advises the party to walk the maze as Ubtao would walk it. 
 
 To leave the maze, the party must find three keys, to unlock the central chamber, which leads to the maze exit. The party enters the maze through the gates. Their first encounter is with a spiritual form of Mwaxanare, who asks if they will take Omu for her. They accept, and she gestures them into a warehouse behind her. There, they find one of the keys that will unlock the way out of the maze, but an attempt to open a chest leads to a combat encounter with a mimic, posing as the chest. They can defeat the mimic, with Aramil taking the brunt of the damage. After taking a moment to heal, they press on.
+
+
+
+
+
+
+
+----------------------------
+Session played on 01/12/2020
