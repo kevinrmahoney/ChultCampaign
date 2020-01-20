@@ -2,7 +2,7 @@
 
 *by Volothamp Geddarm*
 
-*17th of September, the Year 2054*
+*16th of September, the Year 2054*
 
 ## Exploring Wavecrest
 Tycerian, Flint, Grimwald and Aramil awake the following morning. The boat that made landfall the previous day is considered under investigation and is un-operational, due to the fire on the main mast. They are told the next ship will arrive in a couple days, which has been prioritized for them. Tycerian makes a step at the local weapons store, where he meets Rolof of house Rolof, also called "The Lost", who claims to be centuries old and a descendant of the dynasty that ruled the ancient city Omu. He buys a sword. 
