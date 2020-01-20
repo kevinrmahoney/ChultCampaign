@@ -17,4 +17,4 @@ A group of pirates.
 Elf tribe that Aramil is a part of
 
 ## Ytepka Society
-A society……?
+A society
