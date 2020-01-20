@@ -15,3 +15,8 @@ They make their way to the Executioner's Run, a long, rectangle shaped ditch con
 
 ## Finding A Guide
 They meet back up briefly to plan a meeting the next day after things settle down, before finding a tavern to lay low. It is at the Siren's Song Tavern they meet Saerumir, a male elf, who works as a guide. Saerumir is afflicted by the curse, which seems to also have the effect of slowly killing those who had been resurrected, as he had during one of his journeys. The party hires him and prepare for the journey to start tomorrow.
+
+
+
+----------------------------
+Session played on 11/03/2019
