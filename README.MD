@@ -7,4 +7,4 @@
 ## testing3
 ### testing4
 
-[Session #001 | The Dead of the Night]("./Sessions/Session #001 | The Dead of the Night.md")
+[Session #001 | The Dead of the Night](./Summaries/Session #001 | The Dead of the Night.md)
