@@ -54,7 +54,7 @@ A ship helmed by Gwarth Pendleton
 ### Ris Nsi
 A necromancer who lives under Omu. Damages Chult and is the source of the necromancy. 
 
-### Rolof of house Rolof (The Lost)
+### Rolof of House Rolof (The Lost)
 Claiming to be centuries old and a descendant of the dynasty that once ruled the ancient city Omu.
 
 ### Saerumir
