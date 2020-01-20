@@ -1,6 +1,6 @@
 # Bump in the Night
 
-*by Ekeziel Vandervel*
+*by Volothamp Geddarm*
 
 *14th of October, the Year 2054*
 
