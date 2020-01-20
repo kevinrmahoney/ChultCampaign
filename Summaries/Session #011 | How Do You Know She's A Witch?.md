@@ -1,6 +1,6 @@
 # How Do You Know She's A Witch?
 
-*by Ekeziel Vandvervel*
+*by Volothamp Geddarm*
 
 *12th of October, the Year 2054*
 
