@@ -14,3 +14,9 @@ Inside was a guardian naga named Saja N'baza, an avatar for the god Chult. She g
 
 Before leaving, the party accepts gifts - each get a charm of a different power, to aid in their journey. Grimwald is, separately, given a symbol representing the god Ubtao, who would later contact him through Saja N'baza during his rest and task him with ridding the land of a lich named Valindra Shadowmantle, who has made the Heart of Ubtao her home. The party sets off from the ziggurat to complete their new tasks.
 
+
+
+
+
+----------------------------
+Session played on 11/21/2019
