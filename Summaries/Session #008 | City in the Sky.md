@@ -16,3 +16,9 @@ Seeing the flames and the dragonborn, the rest of the party leap to action and a
 
 Sometime after they find what remains of the village. All the goblins died, and amongst their loot is a necklace with the word VORN written into, which Flint receives.
 
+
+
+
+
+----------------------------
+Session played on 12/07/2019
