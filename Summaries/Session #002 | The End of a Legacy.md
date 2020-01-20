@@ -12,3 +12,8 @@ The dead body of Cailen Stefford is carried off the ship, strangely without a ha
 
 ## The Adventure Begins
 The party explains what happened at the docks. William tells the party of a curse that may have something to do with the failed resurrection attempts, one that originated on Chult. He sends the party to investigate, and they accept.
+
+
+
+----------------------------
+Session played on 10/18/2019
