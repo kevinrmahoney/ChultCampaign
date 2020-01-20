@@ -17,6 +17,15 @@ They enter a room filled with statues, seemingly dedicated to members of the Mez
 
 An 8 foot long blue skinned creature appears. It has long teeth that you want to investigate. Flint knows these creatures to be basalisks. As Aramil moves, the statue behind him awaken, and take a swing at him. The party finds themself being attacked by two basilisks and two living statues as they try to run from this engagement. As Aramil and Tycerian investigate the basilisks they feel their strength weakening and turning stiff. Tycerian finds himself under a flurry of attacks by the statues and basilisk as he attempts to retreat with the others. The basilisks get in front of him, and he gets turned to stone by the basilisk. 
 
+
+
+
+
+
+
+
+----------------------------
+Session played on 01/19/2020
 ## Pulling Out The Rod
 Aramil takes out the rod from his pants and blocks the door and then runs into the fray and casts Fists of the Four thunders. Aramil dashes in smashing the ground and all the creatures. Flint reluctantly rushes in to assist attempting to finish off one of the basilisks. However, he misses and now faces the dangers of the basilisk. The armor suits come after Aramil and slashes him with a flurry of blows. Flint faces both basilisk as they attempt to freeze them and fail. As one of them smash through Flints armor putting their posing into him. Grimwald comes back from behind the wall and shatters the armor destroying both saving Aramil. Aramil fires his short bow killing one of the basilisks. Closing his eyes Flint smashes the basilisk directly in front of him. As Flint hides behind his shield the basilisk flanks him and bites into Flints leg. Grimwald fires off a guiding bolt smashing into the basilisk. As Aramil comes up to finish the basilisk off with his short bow. Grimwald comes out from hiding as the basilisk are all finished off. The party investigates the wreckage looking for potentially anything they may have missed.
 
