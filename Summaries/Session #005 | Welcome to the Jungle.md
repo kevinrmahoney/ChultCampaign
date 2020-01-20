@@ -9,3 +9,8 @@ The adventurers make a stop at the local markets to gather some supplies, on the
 
 ## With A Vengeance
 Prior to leaving the port, they make a stop at their Temple of Gond and meet Master Hagrud, an albino dwarf. Flint asks for Hector, the man he's tasked to gift the box to, who also worshipped Gond. They are told by Hagrud that he was called upon by the Order of the Forge to go to Camp Vengeance, a base to the southwest that is used as a headquarters for the Order's mining and exploration operations. The party, now with a destination, set out to Camp Vengeance with a guide at their side. After encounters with some of the Chultan wildlife - including four undead tigers and several flying pteradon, they find themselves approaching Camp Vengeance just as night is falling.
+
+
+
+----------------------------
+Session played on 11/09/2019
