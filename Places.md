@@ -38,7 +38,8 @@ The area in Port Nyanzaru where executions are held. It is a long rectangular sh
 ##### Siren’s Song Tavern
 A tavern in Port Nyanzaru where Saerumir was located.
 
-# Grendor
+Grendor
+=======
 The largest region and alliance of Ralledra, on the west side of the main continent.
 
 ## Faerimir
