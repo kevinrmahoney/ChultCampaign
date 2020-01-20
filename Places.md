@@ -1,4 +1,4 @@
-Chult
+# Chult
 An island to the west of Wavecrest, rumored to be cursed and holds many strange events.
 
 ## Aldani Basin
@@ -31,10 +31,10 @@ A goblin city near the Aldani Basin, now destroyed after the capture of a party 
 ## Port Nyanzaru
 Large port city in Chult led by five merchant princes.
 
-#### Executioner’s Run
+##### Executioner’s Run
 The area in Port Nyanzaru where executions are held. It is a long rectangular shaped ditch filled with obstacles and dinosaurs. Also has areas where crowds can watch the executions take place.
 
-#### Siren’s Song Tavern
+##### Siren’s Song Tavern
 A tavern in Port Nyanzaru where Saerumir was located.
 
 # Grendor
@@ -49,5 +49,5 @@ A town that was raided by the Blackguard
 ## Wavecrest: 
 The town the adventures meet up at before heading out to Chult
 
-#### The Misty Inn: 
+##### The Misty Inn: 
 Tavern in Wavecrest the adventures waited in while they were looking for transit to Chult
