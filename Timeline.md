@@ -6,6 +6,7 @@ Attack on Mezro by Samarachian Empire (Source: Isalawa in Erdegal visions)
 
 ## Year ~1050
 Fall of Mbala to Terror Folk (Source: Nanny Pu'pu)
+
 Fall of Mezro to Ris Nsi (Source: Nanny Pu'pu)
 
 ## Year 1132
