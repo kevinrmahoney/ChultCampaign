@@ -55,4 +55,4 @@ The town the adventures meet up at before heading out to Chult
 Tavern in Wavecrest the adventures waited in while they were looking for transit to Chult
 
 ## Bulder’s rest
-Area to the east of the Istari Tribe where Saerumir is from
+Area to the east of the Istari Tribe where Saerumir is from.
