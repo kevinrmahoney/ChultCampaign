@@ -18,3 +18,6 @@ Elf tribe that Aramil is a part of
 
 ## Ytepka Society
 A society who work to bring justice and order.
+
+## Istari Tribe
+A tribe that Saerumir belongs to. 
