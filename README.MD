@@ -30,3 +30,4 @@
 
 [Session #014 | The Sacrificed.md](https://github.com/RigelOrionBeta/ChultCampaign/blob/master/Summaries/Session%20%23014%20%7C%20The%20Sacrificed.md)
 
+[Session #016 | One Friend Lost, Another Gained.md](https://github.com/RigelOrionBeta/ChultCampaign/blob/master/Summaries/Session%20%23016%20%7C%20One%20Friend%20Lost,%20Another%20Gained.md)
