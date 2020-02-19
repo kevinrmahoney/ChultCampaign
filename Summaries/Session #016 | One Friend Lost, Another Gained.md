@@ -7,7 +7,6 @@
 ## Saerumir's Last Breath
 Following their encounter with the Medusa Zelkore, the party rests in preparation for their journey back to Kir Sabal. During the night, Aramil and Grimwald once again spot the strange, flying humanoid above them, which appears to wear black robes and glisten in the night, and by now they are almost certain that this creature is following them. Otherwise the night is uneventful, and in the morning Tycerian wakes to find his vision restored. However, the celebration is short-lived. The group marks the absence of their companion and guide Saerumir, who they find to have died in his sleep. Their attempts to revive him are to no avail, and in the end Flint uses a Gentle Repose spell to preserve his body while they carry him back on a makeshift stretcher.
 
-## A Giant Mess
 Now without a guide, the party moves through the jungle, Aramil using his survival skills to the best of his ability to lead them back. Along the way they come across a destroyed encampment riddled with mangled bodies and huge humanoid footprints. As they move closer to investigate, they determine that these men were members of the Black Guard, and the footprints - which appear frozen in the ground - could be none other than that of a giant. The party thought it best not to linger for too long, so Flint quickly put together some arrows from the bodies and they pushed on. Before leaving, Flint noticed a piece of bloody parchment sticking out of the pocket of one of the Black Guard, but no one was able to read it.
 
 ## Gaining Trust
