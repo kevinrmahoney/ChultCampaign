@@ -51,4 +51,4 @@ The clearing is very peaceful, very little wildlife. While at camp as the group 
 
 
 ----------------------------
-Session played on 01/25/2020
+Session played on 02/01/2020
