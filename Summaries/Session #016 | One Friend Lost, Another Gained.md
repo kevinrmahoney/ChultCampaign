@@ -33,3 +33,6 @@ The group gathers from him that he also is trying to destroy Ris Nsi and bring M
 Valindra appears to be after a Soul Monger and interested in the god Acerarak, and a magic that can transmute artifacts. She described to Artus the gem as being a black gem with a purple swirl on the inside.
 
 Since Artus' goals seem to align with the mission of the group, they decide to join forces in the journey to come.
+
+----------------------------
+Session played on 02/16/2020
