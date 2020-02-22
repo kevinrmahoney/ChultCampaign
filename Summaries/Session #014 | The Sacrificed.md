@@ -2,7 +2,7 @@
 
 *by Flint Ironforge*
 
-*26th of October, the Year 2054*
+*26th of October, the Year 1254*
 
 ## Fangs of Fright
 The hooded figure disappears as the cult members move towards the group. Thinking fast Grimwald immediately releases a shattering blot into the group of enemies. The large abomination and the priest seem to shake off the devastation. Seeing Grimwald open with a strong attack Aramil jumps right into the fray slamming his fists into the ground. The two guards in front of the giant snake abomination electrocuting the two guards. One of the guards is sent flying up against the edge of the chamber. Right next to the water’s edge. Flint runs closer to get in range, not able to fully close the gap he tosses a flame at the guard. Tycerian following behind Flint throws two javelins at the guards. The two javelins fly through the air whizzing past the head of the guard straight into the ground.
