@@ -2,7 +2,7 @@
 
 *by Volothamp Geddarm*
 
-*14th of October, the Year 2054*
+*14th of October, the Year 1254*
 
 ## A Greater Threat
 Puzzled by the encounter with the Ytepka Society, the group initially makes its way to the port, feeling they should comply with the order. However, a few hours into the march, Aramil tells the party he has decided against it, citing their greater purpose to end the curse and find his people's lost artifact. They decide to continue with their plan to get to the Heart of Ubtao, which floats above the Aldani Basin. However, they don't have a means to get there, until Saerumir suggests they attempt to make friends with an aaracockra tribe at Kir Sabal, a mountain to the south. They agree and begin their journey. 
