@@ -2,7 +2,7 @@
 
 *by Aramil Moonwhisper*
 
-*28th of October, the Year 1254*
+*8th of November, the Year 1254*
 
 ## Saerumir's Last Breath
 Following their encounter with the Medusa Zelkore, the party rests in preparation for their journey back to Kir Sabal. During the night, Aramil and Grimwald once again spot the strange, flying humanoid above them, which appears to wear black robes and glisten in the night, and by now they are almost certain that this creature is following them. Otherwise the night is uneventful, and in the morning Tycerian wakes to find his vision restored. However, the celebration is short-lived. The group marks the absence of their companion and guide Saerumir, who they find to have died in his sleep. Their attempts to revive him are to no avail, and in the end Flint uses a Gentle Repose spell to preserve his body while they carry him back on a makeshift stretcher.
