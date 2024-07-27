@@ -1,6 +1,6 @@
 # Shaking Grounds
 
-*by Volothamp Geddarm*
+*by Jerdenal Firaz*
 
 *11th of October, the Year 2054*
 
